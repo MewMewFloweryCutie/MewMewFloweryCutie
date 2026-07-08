@@ -2,5 +2,5 @@
 
 ### $\color{#FFFF61}{\text{▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄}}$
 
-## $\color{pink}{\text{mew mew ⸝⸝ pink ⸝⸝ cross }}$
-## $\color{pink}{\text{they/them ⸝⸝ nonbinary ⸝⸝ dni <13 & 17< unless we're close friends. }}$
+## $\color{pink}{\text{mew mew ⸝⸝ pink ⸝⸝ cross }}
+## $\color{pink}{\text{they/them ⸝⸝ nonbinary ⸝⸝ dni <13 & 17< unless we're close friends. }}
