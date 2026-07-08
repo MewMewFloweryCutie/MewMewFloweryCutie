@@ -2,4 +2,4 @@
 
 ### $\color{#FFFF61}{\text{▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄}}$
 
-## $\color{pink}{\text{mew mew ⸝⸝ pink ⸝⸝ cross }}&
+## $\color{pink}{\text{mew mew ⸝⸝ pink ⸝⸝ cross }}$
