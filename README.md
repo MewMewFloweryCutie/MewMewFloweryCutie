@@ -1,7 +1,8 @@
-## Hi there 👋
+<p align="center"> <div align="center">
 
-<!--
-**MewMewFloweryCutie/MewMewFloweryCutie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### $\color{purple}{\text{▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄}}$
+
+## $\color{pink}{\text{cross ⸝⸝ frisk ⸝⸝ betty }}$
 
 Here are some ideas to get you started:
 
